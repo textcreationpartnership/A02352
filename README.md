@@ -35,78 +35,38 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Ignis fatuus. Or, The elf-fire of purgatorie Wherein Bellarmine is confuted by arguments both out of
+
+1. TO THE TRVELY Noble, Right Honourable, and Religious, IOHN, Earle of Laderdail, Lord Thirlestane, &c. one of his Maiesties most Honorable Priuie Counsell, &c. and to his most Religious Countesse and Ladie.
+
+1. To the READER.
+
 #####Body#####
 
-1. Our Assertion.
+1. OF PVRGATORY. The Romish Assertion.
 
-    _ 1. Their Confession, and arguments of their owne Doctors for vs.
+    _ Our Assertion.
 
-    _ 2. Scriptures adduced by Bellarmine, to proue, that the Saints presently inioy the vision of God, making directly for vs against Purgatory.
+    _ In these foure poynts then consisteth all our difference.
 
-    _ 3. Fathers adduced by Bellarmine himselfe, to proue that the Saints presently inioye the vision of God, and making expressely for vs against the dotage of Purgatorie.
+    _ Arguments against Purgatorie, and to prooue our Assertion.
 
-    _ 4. Reasons adduced by Bellarmine, to proue the Saints present fruition of ioy, and making directly for vs, against Purgatorie.
+    _ Arguments against Purgatorie, and to prooue our Assertion out of the New Testament.
 
-1. In these foure poynts then consisteth all our difference.
+    _ Arguments against Purgatory, and for our Assertion out of Bellarmin, and our Aduersaries themselues.
 
-    _ 1. Their Confession, and arguments of their owne Doctors for vs.
+      * 1. Their Confession, and arguments of their owne Doctors for vs.
 
-    _ 2. Scriptures adduced by Bellarmine, to proue, that the Saints presently inioy the vision of God, making directly for vs against Purgatory.
+      * 2. Scriptures adduced by Bellarmine, to proue, that the Saints presently inioy the vision of God, making directly for vs against Purgatory.
 
-    _ 3. Fathers adduced by Bellarmine himselfe, to proue that the Saints presently inioye the vision of God, and making expressely for vs against the dotage of Purgatorie.
+      * 3. Fathers adduced by Bellarmine himselfe, to proue that the Saints presently inioye the vision of God, and making expressely for vs against the dotage of Purgatorie.
 
-    _ 4. Reasons adduced by Bellarmine, to proue the Saints present fruition of ioy, and making directly for vs, against Purgatorie.
+      * 4. Reasons adduced by Bellarmine, to proue the Saints present fruition of ioy, and making directly for vs, against Purgatorie.
 
-1. Arguments against Purgatorie, and to prooue our Assertion.
+    _ Bellarmines Arguments for Purgatory answered.
 
-    _ 1. Their Confession, and arguments of their owne Doctors for vs.
+    _ Bellarmines Arguments for Purgatory answered.
 
-    _ 2. Scriptures adduced by Bellarmine, to proue, that the Saints presently inioy the vision of God, making directly for vs against Purgatory.
-
-    _ 3. Fathers adduced by Bellarmine himselfe, to proue that the Saints presently inioye the vision of God, and making expressely for vs against the dotage of Purgatorie.
-
-    _ 4. Reasons adduced by Bellarmine, to proue the Saints present fruition of ioy, and making directly for vs, against Purgatorie.
-
-1. Arguments against Purgatorie, and to prooue our Assertion out of the New Testament.
-
-    _ 1. Their Confession, and arguments of their owne Doctors for vs.
-
-    _ 2. Scriptures adduced by Bellarmine, to proue, that the Saints presently inioy the vision of God, making directly for vs against Purgatory.
-
-    _ 3. Fathers adduced by Bellarmine himselfe, to proue that the Saints presently inioye the vision of God, and making expressely for vs against the dotage of Purgatorie.
-
-    _ 4. Reasons adduced by Bellarmine, to proue the Saints present fruition of ioy, and making directly for vs, against Purgatorie.
-
-1. Arguments against Purgatory, and for our Assertion out of Bellarmin, and our Aduersaries themselues.
-
-    _ 1. Their Confession, and arguments of their owne Doctors for vs.
-
-    _ 2. Scriptures adduced by Bellarmine, to proue, that the Saints presently inioy the vision of God, making directly for vs against Purgatory.
-
-    _ 3. Fathers adduced by Bellarmine himselfe, to proue that the Saints presently inioye the vision of God, and making expressely for vs against the dotage of Purgatorie.
-
-    _ 4. Reasons adduced by Bellarmine, to proue the Saints present fruition of ioy, and making directly for vs, against Purgatorie.
-
-1. Bellarmines Arguments for Purgatory answered.
-
-    _ 1. Their Confession, and arguments of their owne Doctors for vs.
-
-    _ 2. Scriptures adduced by Bellarmine, to proue, that the Saints presently inioy the vision of God, making directly for vs against Purgatory.
-
-    _ 3. Fathers adduced by Bellarmine himselfe, to proue that the Saints presently inioye the vision of God, and making expressely for vs against the dotage of Purgatorie.
-
-    _ 4. Reasons adduced by Bellarmine, to proue the Saints present fruition of ioy, and making directly for vs, against Purgatorie.
-
-1. Bellarmines Arguments for Purgatory answered.
-
-    _ 1. Their Confession, and arguments of their owne Doctors for vs.
-
-    _ 2. Scriptures adduced by Bellarmine, to proue, that the Saints presently inioy the vision of God, making directly for vs against Purgatory.
-
-    _ 3. Fathers adduced by Bellarmine himselfe, to proue that the Saints presently inioye the vision of God, and making expressely for vs against the dotage of Purgatorie.
-
-    _ 4. Reasons adduced by Bellarmine, to proue the Saints present fruition of ioy, and making directly for vs, against Purgatorie.
+1. AN ANNEXE TO this Treatise of Purgatorie, concerning the Distinction of Sinne into Mortall and Veniall, which is the maine Pillar of this Pyrotechnie, and being pulled downe, makes the whole Fabricke to fall.
 
 **Types of content**
 
